@@ -1,5 +1,3 @@
-Creating a Compelling Elevator Pitch
-=============================================================================
 
 Creating a compelling elevator pitch is an essential part of crafting your personal brand. In this chapter, we'll discuss strategies for creating a compelling elevator pitch.
 

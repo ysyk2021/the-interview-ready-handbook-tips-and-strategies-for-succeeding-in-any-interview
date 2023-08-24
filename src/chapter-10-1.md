@@ -1,5 +1,3 @@
-Understanding the Salary Negotiation Process
-=========================================================================================
 
 Negotiating salary and benefits can be a daunting task, but it's an important part of the job search process. In this chapter, we'll discuss strategies for understanding the salary negotiation process and maximizing your compensation package.
 

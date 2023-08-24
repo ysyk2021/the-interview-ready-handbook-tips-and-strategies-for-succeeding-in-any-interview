@@ -1,5 +1,3 @@
-The STAR Method for Answering Behavioral Questions
-================================================================================================
 
 Behavioral interview questions are designed to assess how you have handled specific situations in the past. In this chapter, we'll discuss the STAR method for answering behavioral interview questions.
 

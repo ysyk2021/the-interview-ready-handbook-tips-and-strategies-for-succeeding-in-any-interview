@@ -1,5 +1,3 @@
-Chapter 5: Answering Common Interview Questions
-===============================================
 
 Preparing for common interview questions can help you feel more confident and prepared during the job search process. In this chapter, we'll discuss strategies for answering commonly asked questions about your background and experience, questions about your strengths and weaknesses, and behavioral interview questions.
 

@@ -1,5 +1,3 @@
-Developing a Personalized Interview Preparation Plan
-==============================================================================================================
 
 Developing a personalized interview preparation plan can help you feel confident and prepared for the job search process. In this chapter, we'll discuss strategies for creating an effective interview preparation plan.
 

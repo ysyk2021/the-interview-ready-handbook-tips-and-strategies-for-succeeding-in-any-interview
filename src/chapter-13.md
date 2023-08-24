@@ -1,5 +1,3 @@
-Chapter 13: Creating Your Own Interview Preparation Plan
-========================================================
 
 Creating a personalized interview preparation plan is an essential step in acing your next job interview. In this chapter, we'll discuss strategies for identifying your strengths and weaknesses, developing a personalized interview preparation plan, and cultivating a winning mindset.
 

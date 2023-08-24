@@ -1,5 +1,3 @@
-Techniques for Managing and Reducing Anxiety
-======================================================================================
 
 Interview anxiety is a common experience, but it can be managed and reduced with the right techniques and mindset. In this chapter, we'll discuss strategies for managing and reducing interview anxiety.
 

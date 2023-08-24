@@ -1,5 +1,3 @@
-Reading and Interpreting Body Language
-=====================================================================================
 
 Mastering nonverbal communication is an essential skill for success in the job search process. In this chapter, we'll discuss strategies for reading and interpreting body language during an interview.
 

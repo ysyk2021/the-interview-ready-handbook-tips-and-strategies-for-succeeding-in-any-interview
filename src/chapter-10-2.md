@@ -1,5 +1,3 @@
-Tips for Researching and Determining Fair Compensation
-===================================================================================================
 
 Negotiating salary and benefits is an important part of the job search process. In this chapter, we'll discuss tips for researching and determining fair compensation.
 

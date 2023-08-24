@@ -1,5 +1,3 @@
-Identifying Your Strengths and Weaknesses
-===================================================================================================
 
 Creating a personalized interview preparation plan can help you feel more confident and prepared for the job search process. In this chapter, we'll discuss strategies for identifying your strengths and weaknesses to create an effective interview preparation plan.
 

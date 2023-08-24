@@ -1,5 +1,3 @@
-Nonverbal Communication Tips
-=======================================================================================
 
 Nonverbal communication plays an important role in how you are perceived during the interview. In this chapter, we'll discuss nonverbal communication tips to help you communicate effectively during the interview.
 

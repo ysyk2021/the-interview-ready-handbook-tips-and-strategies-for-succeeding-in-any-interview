@@ -1,5 +1,3 @@
-Techniques for Answering Difficult or Unexpected Questions
-===============================================================================================================
 
 Difficult or unexpected questions can be challenging to answer during a job interview. In this chapter, we'll discuss techniques and strategies for effectively answering these types of questions.
 

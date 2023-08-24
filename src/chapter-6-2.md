@@ -1,5 +1,3 @@
-Strategies for Addressing Potential Red Flags or Concerns
-===========================================================================================================================
 
 Handling difficult interview questions and situations can be challenging. In this chapter, we'll discuss strategies for addressing potential red flags or concerns.
 

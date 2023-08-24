@@ -1,5 +1,3 @@
-Behavioral Interview Questions
-===============================================================================
 
 Behavioral interview questions are commonly asked in interviews and focus on past experiences to predict future performance. In this chapter, we'll discuss strategies for answering behavioral interview questions.
 

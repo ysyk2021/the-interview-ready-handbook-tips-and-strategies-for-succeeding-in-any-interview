@@ -1,5 +1,3 @@
-Controlling Your Own Nonverbal Cues
-==================================================================================
 
 Mastering nonverbal communication is an essential skill for success in the job search process. In this chapter, we'll discuss strategies for controlling your own nonverbal cues during an interview.
 

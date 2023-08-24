@@ -1,5 +1,3 @@
-Cultivating a Winning Mindset, Confidence, and Adaptability
-=====================================================================================================================
 
 Creating a customized interview preparation plan can help you feel more confident and prepared for your upcoming interviews. In this chapter, we'll discuss strategies for cultivating a winning mindset, building confidence, and developing adaptability to help you succeed in any interview.
 

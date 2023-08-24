@@ -1,5 +1,3 @@
-Phone and Video Interviews
-=================================================================================
 
 Phone and video interviews are becoming increasingly common in today's job market. In this chapter, we'll discuss strategies for navigating phone and video interviews.
 

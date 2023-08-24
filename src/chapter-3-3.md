@@ -1,5 +1,3 @@
-Identifying the Company Culture and Values
-===================================================================================
 
 Identifying the company culture and values is an essential part of preparing for any interview. In this chapter, we'll discuss strategies for identifying the company culture and values.
 

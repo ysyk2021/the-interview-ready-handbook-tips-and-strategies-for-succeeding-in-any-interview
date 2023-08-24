@@ -1,4 +1,4 @@
-# Introduction
+
 
 Interviews are a critical part of the job search process, and the ability to perform well in an interview can be the difference between landing your dream job or missing out on the opportunity. That's where "The Interview Ready Handbook: Tips and Strategies for Succeeding in Any Interview" comes in.
 

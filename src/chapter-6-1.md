@@ -1,5 +1,3 @@
-Techniques for Answering Difficult or Unexpected Questions
-============================================================================================================================
 
 Handling difficult interview questions and unexpected situations can be stressful. In this chapter, we'll discuss techniques for answering difficult or unexpected questions.
 

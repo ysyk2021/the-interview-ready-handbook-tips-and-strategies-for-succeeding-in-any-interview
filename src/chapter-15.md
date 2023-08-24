@@ -1,5 +1,3 @@
-Chapter 15: Answering Difficult Interview Questions
-===================================================
 
 Difficult or unexpected questions can be challenging to answer in a job interview. In this chapter, we'll discuss techniques and strategies for answering difficult interview questions.
 

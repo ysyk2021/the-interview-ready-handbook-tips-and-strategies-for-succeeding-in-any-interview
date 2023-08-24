@@ -1,5 +1,3 @@
-Creating a Positive First Impression
-===================================================================================
 
 Creating a positive first impression is critical in the job interview process. In this chapter, we'll discuss strategies for using nonverbal communication to create a positive and lasting impression on the interviewer.
 

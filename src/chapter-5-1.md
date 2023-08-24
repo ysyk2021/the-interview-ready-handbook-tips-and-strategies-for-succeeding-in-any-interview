@@ -1,5 +1,3 @@
-Commonly Asked Questions About Your Background and Experience
-==============================================================================================================
 
 Questions about your background and experience are common in job interviews. In this chapter, we'll discuss strategies for answering these types of questions effectively.
 

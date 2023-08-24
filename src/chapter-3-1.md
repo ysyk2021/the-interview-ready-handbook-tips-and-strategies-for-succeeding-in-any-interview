@@ -1,5 +1,3 @@
-Researching the Company and Position
-=============================================================================
 
 Researching the company and position is an essential part of preparing for your interview. In this chapter, we'll discuss strategies for researching the company and position.
 

@@ -1,5 +1,3 @@
-Building Confidence in Your Interview Skills
-======================================================================================
 
 Interview anxiety is a common experience, but it can be managed with the right techniques and mindset. In this chapter, we'll discuss strategies for overcoming interview anxiety and building confidence in your interview skills.
 

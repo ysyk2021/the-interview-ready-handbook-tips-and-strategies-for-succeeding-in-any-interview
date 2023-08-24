@@ -1,5 +1,3 @@
-Chapter 14: Advanced Interviewing Techniques
-============================================
 
 Advanced interviewing techniques can help you stand out from other candidates and leave a lasting impression on the interviewer. In this chapter, we'll discuss some advanced techniques for acing your next interview.
 

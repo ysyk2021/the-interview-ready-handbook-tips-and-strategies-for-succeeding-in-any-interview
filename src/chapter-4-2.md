@@ -1,5 +1,3 @@
-Understanding Your Unique Value Proposition
-====================================================================================
 
 Crafting your personal brand is an essential part of preparing for your interview. In this chapter, we'll discuss strategies for understanding your unique value proposition.
 

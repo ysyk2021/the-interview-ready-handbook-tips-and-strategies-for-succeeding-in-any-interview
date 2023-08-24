@@ -1,4 +1,4 @@
-# Conclusion
+
 
 Congratulations! You've made it to the end of The Interview Ready Handbook. By now, you should have a solid understanding of how to prepare for and succeed in any job interview.
 

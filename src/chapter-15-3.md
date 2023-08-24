@@ -1,5 +1,3 @@
-Tips for Turning Negative Aspects into Positives
-=====================================================================================================
 
 Job interviews can be stressful, especially when faced with difficult questions. In this chapter, we'll discuss strategies for answering difficult interview questions and turning negative aspects into positives.
 

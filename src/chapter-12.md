@@ -1,5 +1,3 @@
-Chapter 12: Overcoming Interview Anxiety
-========================================
 
 Interview anxiety is a common experience for many job seekers. In this chapter, we'll discuss strategies for understanding and managing interview anxiety.
 

@@ -1,5 +1,3 @@
-Chapter 3: Preparing for Your Interview
-=======================================
 
 Preparing for your interview is essential to success in the job search process. In this chapter, we'll discuss strategies for researching the company and position, understanding the job requirements and responsibilities, and identifying the company culture and values.
 

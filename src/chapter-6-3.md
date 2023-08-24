@@ -1,5 +1,3 @@
-Tips for Turning Negative Aspects into Positives
-==================================================================================================================
 
 Handling difficult interview questions and situations can be challenging, especially when negative aspects are brought up. In this chapter, we'll discuss strategies for turning negative aspects into positives.
 

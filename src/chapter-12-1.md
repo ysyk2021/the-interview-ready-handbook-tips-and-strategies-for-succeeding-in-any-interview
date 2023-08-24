@@ -1,5 +1,3 @@
-Understanding the Causes of Interview Anxiety
-=======================================================================================
 
 Interview anxiety is a common experience for many job seekers. In this chapter, we'll discuss strategies for understanding the root causes of interview anxiety and developing targeted strategies for managing it.
 
